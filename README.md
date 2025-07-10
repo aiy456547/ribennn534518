@@ -15,4 +15,4 @@
 此外，平台还非常注重用户的隐私保护。通过HTTPS加密技术，平台确保用户的个人信息和观看记录不会外泄，同时避免了恶意广告和病毒的干扰。  
 总体而言，成人视频免费在线播放平台提供了丰富的资源、高质量的画质、流畅的播放体验和严格的隐私保护，是现代用户观看成人影片的理想平台。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/aiy456547/ribennn534518 )</span>
